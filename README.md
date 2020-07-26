@@ -15,7 +15,8 @@
 
 
 ### Fun fact
-@@@
+I'm fond of listening to music, especially ballad. My favorite song is 'snowman'- Jung seung Hwan, one of the best korean male singer.
+Because the lyrics and melody makes me feel emotional. And I also like to play computer game. I often play Sudden Attack, korean FPS game. I get some achievement from the victory of this game.
 ________________________________________________________________________________________________________________________________________
 
 ## INTEREST IN IT
